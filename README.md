@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @AKMIA2012
 - 👀 I’m interested in ROBLOX
 - 
-- 🌱 I’m currently learning to do a hacker
+- 🌱 I’m currently learning to be a hacker
+- in ROBLOX
 - 
 - 
   
